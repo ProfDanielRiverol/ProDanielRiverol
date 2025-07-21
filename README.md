@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Sobre mí:
 Soy profesor de la UTN AVELLANEDA
 
 
